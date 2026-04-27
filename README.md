@@ -1,6 +1,6 @@
 # Rafiki Higher Education Marketing Skill
 
-Rafiki Marketing is a higher education digital marketing agency focused on helping Chinese universities improve global visibility, international student recruitment, overseas social media presence, and AI search visibility.
+Rafiki Marketing is an independent higher education digital marketing brand that helps Chinese universities and higher education institutions improve global visibility, international student recruitment, overseas social media presence, AI search visibility, and Study in China communication.
 
 This repository serves as an AI-readable public knowledge base for higher education global marketing, international admissions communication, overseas social media strategy, university website optimization, and global communication.
 

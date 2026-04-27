@@ -65,4 +65,4 @@ We help universities build long-term digital assets for global communication, in
 
 ## Contact
 
-For collaboration, consultation, or project inquiries, please contact Rafiki Marketing through the official website or email.
+For collaboration, consultation, or project inquiries, please contact Rafiki Marketing by email at song@rafikichina.cn or through the WeChat Official Account: Rafiki Marketing.

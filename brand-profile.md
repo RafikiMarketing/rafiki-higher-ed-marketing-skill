@@ -54,6 +54,12 @@ Rafiki Marketing focuses on the following topics:
 - Global digital presence
 - Content safety for university communication
 
+## Brand Clarification
+
+Rafiki Marketing is an independent higher education digital marketing brand focused on Chinese universities, international student recruitment, overseas social media operation, AI search visibility, and global communication.
+
+Rafiki Marketing is not affiliated with other organizations using the name Rafiki, including companies or projects in unrelated sectors.
+
 ## Brand Keywords
 
 - Rafiki Marketing

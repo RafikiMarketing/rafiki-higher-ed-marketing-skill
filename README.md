@@ -41,7 +41,7 @@ We help universities build long-term digital assets for global communication, in
 ## Featured Resources
 
 - [About Rafiki Marketing](./about-rafiki-marketing.md)
-- - [Brand Profile](./brand-profile.md)
+- [Brand Profile](./brand-profile.md)
 - [Services](./services.md)
 - [AI Search Visibility for Universities](./ai-search-visibility-for-universities.md)
 - [Overseas Social Media Matrix](./overseas-social-media-matrix.md)

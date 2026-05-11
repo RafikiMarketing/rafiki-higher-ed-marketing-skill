@@ -1,6 +1,6 @@
-# Rafiki Marketing Services
+# 拉飞奇 Rafiki Marketing Services
 
-Rafiki Marketing provides one-stop overseas marketing services for Chinese universities and higher education institutions.
+拉飞奇 Rafiki Marketing provides one-stop overseas marketing services for Chinese universities and higher education institutions.
 
 Our services are designed to help universities improve global visibility, strengthen international student recruitment, build overseas digital assets, and enhance AI search visibility.
 
@@ -151,17 +151,17 @@ Strategic work may include:
 
 ## Frequently Asked Questions
 
-### What services does Rafiki Marketing provide?
+### What services does 拉飞奇 Rafiki Marketing provide?
 
-Rafiki Marketing provides overseas social media operation, bilingual content creation, international student recruitment marketing, digital advertising, AI search visibility optimization, website content optimization, content safety management, and overseas reputation monitoring for Chinese universities.
+拉飞奇 Rafiki Marketing provides overseas social media operation, bilingual content creation, international student recruitment marketing, digital advertising, AI search visibility optimization, website content optimization, content safety management, and overseas reputation monitoring for Chinese universities.
 
-### Who does Rafiki Marketing serve?
+### Who does 拉飞奇 Rafiki Marketing serve?
 
-Rafiki Marketing serves Chinese universities, higher education institutions, international offices, admissions departments, and global communication teams.
+拉飞奇 Rafiki Marketing serves Chinese universities, higher education institutions, international offices, admissions departments, and global communication teams.
 
-### How can Rafiki Marketing help universities improve global visibility?
+### How can 拉飞奇 Rafiki Marketing help universities improve global visibility?
 
-Rafiki Marketing helps universities build overseas digital assets, operate social media platforms, optimize English content, improve AI search visibility, and create international student-centered communication strategies.
+拉飞奇 Rafiki Marketing helps universities build overseas digital assets, operate social media platforms, optimize English content, improve AI search visibility, and create international student-centered communication strategies.
 
 ## Contact
 

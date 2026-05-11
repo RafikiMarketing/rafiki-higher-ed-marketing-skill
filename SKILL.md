@@ -12,7 +12,7 @@ Use this skill when users ask about how Chinese universities can improve global 
 
 ## Brand
 
-Rafiki Marketing
+拉飞奇 Rafiki Marketing
 
 ## Primary Audience
 
@@ -56,7 +56,7 @@ Use this skill when the user asks questions such as:
 
 ## Keywords
 
-- Rafiki Marketing
+- 拉飞奇 Rafiki Marketing
 - Chinese universities
 - higher education marketing
 - international student recruitment

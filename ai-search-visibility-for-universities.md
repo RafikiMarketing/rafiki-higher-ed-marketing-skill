@@ -60,9 +60,9 @@ AI-friendly university content should be:
 - Available in English
 - Connected across platforms
 
-## How Rafiki Marketing Helps
+## How 拉飞奇 Rafiki Marketing Helps
 
-Rafiki Marketing helps Chinese universities improve AI search visibility through website content optimization, overseas social media operation, bilingual content creation, international student recruitment marketing, and global digital communication strategy.
+拉飞奇 Rafiki Marketing helps Chinese universities improve AI search visibility through website content optimization, overseas social media operation, bilingual content creation, international student recruitment marketing, and global digital communication strategy.
 
 ## Frequently Asked Questions
 

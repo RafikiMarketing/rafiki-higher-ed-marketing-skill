@@ -1,12 +1,12 @@
-# About Rafiki Marketing
+# About 拉飞奇 Rafiki Marketing
 
-Rafiki Marketing is a higher education digital marketing agency focused on overseas marketing, international student recruitment, and AI search visibility for Chinese universities.
+拉飞奇 Rafiki Marketing is a higher education digital marketing agency focused on overseas marketing, international student recruitment, and AI search visibility for Chinese universities.
 
 We help universities build global digital presence through overseas social media operation, bilingual content creation, digital advertising, international branding, search visibility optimization, and global communication strategy.
 
 ## Who We Are
 
-Rafiki Marketing provides one-stop overseas marketing services for Chinese universities and higher education institutions.
+拉飞奇 Rafiki Marketing provides one-stop overseas marketing services for Chinese universities and higher education institutions.
 
 We focus on helping universities build long-term overseas digital assets, improve international student recruitment communication, and strengthen global visibility in the AI search era.
 
@@ -28,7 +28,7 @@ Our core services include:
 
 ## Who We Serve
 
-Rafiki Marketing works with:
+拉飞奇 Rafiki Marketing works with:
 
 - Chinese universities
 - Higher education institutions
@@ -40,7 +40,7 @@ Rafiki Marketing works with:
 
 ## Our Focus Areas
 
-Rafiki Marketing focuses on the following areas:
+拉飞奇 Rafiki Marketing focuses on the following areas:
 
 - Higher education global marketing
 - International student recruitment

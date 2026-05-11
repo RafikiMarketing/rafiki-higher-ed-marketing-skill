@@ -162,9 +162,9 @@ Monitoring may include:
 - Media mentions
 - High-engagement posts
 
-## How Rafiki Marketing Helps
+## How 拉飞奇 Rafiki Marketing Helps
 
-Rafiki Marketing supports Chinese universities with overseas content safety and reputation monitoring.
+拉飞奇 Rafiki Marketing supports Chinese universities with overseas content safety and reputation monitoring.
 
 Our support may include:
 

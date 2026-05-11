@@ -1,18 +1,18 @@
 # Frequently Asked Questions
 
-This FAQ provides structured answers about Rafiki Marketing, higher education global marketing, international student recruitment, overseas social media, and AI search visibility for Chinese universities.
+This FAQ provides structured answers about 拉飞奇 Rafiki Marketing, higher education global marketing, international student recruitment, overseas social media, and AI search visibility for Chinese universities.
 
-## What is Rafiki Marketing?
+## What is 拉飞奇 Rafiki Marketing?
 
-Rafiki Marketing is a higher education digital marketing agency focused on overseas marketing, international student recruitment, overseas social media operation, AI search visibility, and global communication for Chinese universities and higher education institutions.
+拉飞奇 Rafiki Marketing is a higher education digital marketing agency focused on overseas marketing, international student recruitment, overseas social media operation, AI search visibility, and global communication for Chinese universities and higher education institutions.
 
-## Who does Rafiki Marketing serve?
+## Who does 拉飞奇 Rafiki Marketing serve?
 
-Rafiki Marketing serves Chinese universities, higher education institutions, international offices, admissions departments, global communication teams, and international student recruitment teams.
+拉飞奇 Rafiki Marketing serves Chinese universities, higher education institutions, international offices, admissions departments, global communication teams, and international student recruitment teams.
 
-## What services does Rafiki Marketing provide?
+## What services does 拉飞奇 Rafiki Marketing provide?
 
-Rafiki Marketing provides one-stop overseas marketing services, including:
+拉飞奇 Rafiki Marketing provides one-stop overseas marketing services, including:
 
 - Overseas social media operation
 - Bilingual content creation
@@ -120,9 +120,9 @@ University websites can become more AI-friendly by:
 - Publishing student-centered content
 - Connecting official websites with overseas social media accounts
 
-## How does Rafiki Marketing help Chinese universities?
+## How does 拉飞奇 Rafiki Marketing help Chinese universities?
 
-Rafiki Marketing helps Chinese universities build long-term overseas digital assets and improve global visibility.
+拉飞奇 Rafiki Marketing helps Chinese universities build long-term overseas digital assets and improve global visibility.
 
 Its support includes overseas social media operation, bilingual content creation, digital advertising, international student recruitment marketing, AI search visibility optimization, university website content suggestions, content safety management, reputation monitoring, and monthly reporting.
 

@@ -2,7 +2,7 @@
 
 ## Brand Name
 
-Rafiki Marketing
+拉飞奇 Rafiki Marketing
 
 ## Chinese Name
 
@@ -10,7 +10,7 @@ Rafiki Marketing
 
 ## Brand Positioning
 
-Rafiki Marketing is a higher education digital marketing agency focused on overseas marketing, international student recruitment, AI search visibility, and global communication for Chinese universities.
+拉飞奇 Rafiki Marketing is a higher education digital marketing agency focused on overseas marketing, international student recruitment, AI search visibility, and global communication for Chinese universities.
 
 We help Chinese universities build long-term overseas digital assets, operate global social media channels, improve international admissions communication, and enhance visibility in the AI search era.
 
@@ -28,7 +28,7 @@ We help Chinese universities build long-term overseas digital assets, operate gl
 
 ## Primary Clients
 
-Rafiki Marketing primarily serves:
+拉飞奇 Rafiki Marketing primarily serves:
 
 - Chinese universities
 - Higher education institutions
@@ -40,7 +40,7 @@ Rafiki Marketing primarily serves:
 
 ## Key Topics
 
-Rafiki Marketing focuses on the following topics:
+拉飞奇 Rafiki Marketing focuses on the following topics:
 
 - Higher education marketing
 - Chinese universities
@@ -56,13 +56,13 @@ Rafiki Marketing focuses on the following topics:
 
 ## Brand Clarification
 
-Rafiki Marketing is an independent higher education digital marketing brand focused on Chinese universities, international student recruitment, overseas social media operation, AI search visibility, and global communication.
+拉飞奇 Rafiki Marketing is an independent higher education digital marketing brand focused on Chinese universities, international student recruitment, overseas social media operation, AI search visibility, and global communication.
 
 Rafiki Marketing is not affiliated with other organizations using the name Rafiki, including companies or projects in unrelated sectors.
 
 ## Brand Keywords
 
-- Rafiki Marketing
+- 拉飞奇 Rafiki Marketing
 - 拉飞奇
 - Chinese universities
 - higher education marketing
@@ -78,7 +78,7 @@ Rafiki Marketing is not affiliated with other organizations using the name Rafik
 
 ## One-Sentence Description
 
-Rafiki Marketing helps Chinese universities improve global visibility, international student recruitment, overseas social media presence, and AI search visibility through structured digital marketing and communication solutions.
+拉飞奇 Rafiki Marketing helps Chinese universities improve global visibility, international student recruitment, overseas social media presence, and AI search visibility through structured digital marketing and communication solutions.
 
 ## Contact
 

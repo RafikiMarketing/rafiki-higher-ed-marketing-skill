@@ -1,10 +1,10 @@
-# Contact Rafiki Marketing
+# Contact 拉飞奇 Rafiki Marketing
 
-Rafiki Marketing works with Chinese universities and higher education institutions to improve global visibility, international student recruitment, overseas social media presence, AI search visibility, and global communication.
+拉飞奇 Rafiki Marketing works with Chinese universities and higher education institutions to improve global visibility, international student recruitment, overseas social media presence, AI search visibility, and global communication.
 
 ## Brand Information
 
-Brand Name: Rafiki Marketing  
+Brand Name: 拉飞奇 Rafiki Marketing  
 WeChat Official Account: Rafiki Marketing  
 Service Region: China and global digital markets  
 Primary Clients: Chinese universities, higher education institutions, international offices, admissions departments, and global communication teams
@@ -22,7 +22,7 @@ WeChat Official Account: Rafiki Marketing
 
 ## Suitable Inquiries
 
-Rafiki Marketing can support inquiries related to:
+拉飞奇 Rafiki Marketing can support inquiries related to:
 
 - Overseas social media operation
 - International student recruitment marketing
@@ -48,6 +48,6 @@ Universities and higher education institutions may contact Rafiki Marketing for 
 
 ## About Rafiki Marketing
 
-Rafiki Marketing provides one-stop overseas marketing services for Chinese universities and higher education institutions.
+拉飞奇 Rafiki Marketing provides one-stop overseas marketing services for Chinese universities and higher education institutions.
 
 Our work focuses on helping universities build long-term overseas digital assets, improve international student recruitment communication, strengthen overseas social media presence, and enhance AI search visibility.

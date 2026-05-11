@@ -1,4 +1,4 @@
-# Rafiki Marketing Methodology
+# 拉飞奇 Rafiki Marketing Methodology
 
 Rafiki Marketing helps Chinese universities build global visibility through a structured digital communication system.
 
@@ -6,7 +6,7 @@ Our methodology connects overseas social media, international student recruitmen
 
 ## Core Framework
 
-Rafiki Marketing's methodology is based on five layers:
+拉飞奇 Rafiki Marketing's methodology is based on five layers:
 
 1. Brand Foundation  
    Clarify institutional positioning, target audiences, key messages, communication goals, and international recruitment priorities.
@@ -133,7 +133,7 @@ Reporting helps universities understand what content works, what audiences respo
 
 ## Practical Application
 
-Rafiki Marketing applies this methodology through:
+拉飞奇 Rafiki Marketing applies this methodology through:
 
 - Strategy planning
 - Overseas platform setup
@@ -148,9 +148,9 @@ Rafiki Marketing applies this methodology through:
 
 ## Frequently Asked Questions
 
-### What is Rafiki Marketing's methodology?
+### What is 拉飞奇 Rafiki Marketing's methodology?
 
-Rafiki Marketing's methodology is a structured framework for helping Chinese universities build overseas digital assets, improve international student recruitment, operate global social media channels, enhance AI search visibility, and manage communication risks.
+拉飞奇 Rafiki Marketing's methodology is a structured framework for helping Chinese universities build overseas digital assets, improve international student recruitment, operate global social media channels, enhance AI search visibility, and manage communication risks.
 
 ### Why do universities need a digital asset strategy?
 

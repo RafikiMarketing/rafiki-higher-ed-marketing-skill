@@ -117,9 +117,9 @@ Recommended actions include:
 - Escalate potential risks quickly
 - Review private messages and public comments regularly
 
-## How Rafiki Marketing Helps
+## How 拉飞奇 Rafiki Marketing Helps
 
-Rafiki Marketing helps Chinese universities build and operate overseas social media matrices, including account setup, content planning, bilingual content creation, visual production, platform operation, advertising, reporting, and reputation monitoring.
+拉飞奇 Rafiki Marketing helps Chinese universities build and operate overseas social media matrices, including account setup, content planning, bilingual content creation, visual production, platform operation, advertising, reporting, and reputation monitoring.
 
 ## Frequently Asked Questions
 

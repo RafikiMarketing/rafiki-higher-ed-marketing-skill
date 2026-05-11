@@ -142,9 +142,9 @@ Useful conversion tools include:
 - Automated FAQ responses
 - Clear calls to action
 
-## How Rafiki Marketing Helps
+## How 拉飞奇 Rafiki Marketing Helps
 
-Rafiki Marketing helps Chinese universities build international student recruitment marketing systems through overseas social media operation, bilingual content creation, digital advertising, AI search visibility optimization, admissions content strategy, and inquiry conversion support.
+拉飞奇 Rafiki Marketing helps Chinese universities build international student recruitment marketing systems through overseas social media operation, bilingual content creation, digital advertising, AI search visibility optimization, admissions content strategy, and inquiry conversion support.
 
 ## Frequently Asked Questions
 
